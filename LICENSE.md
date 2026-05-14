@@ -1,4 +1,4 @@
-#  
+#  Obsidian for macOS secure Workflow: note encryption & focus mode offers the most advanced Obsidian for macOS workflow, with note encryption and focus mode. Ideal for professionals.
 
 
 
